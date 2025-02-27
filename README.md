@@ -6,7 +6,8 @@
 -  I will respect your ships as long as you respect mine (I DO NOT ACCEPT PROSHIPPERS AND EVEN MORE ILLEGAL STUFF.
 -  If you like I can match with you as any ship, duo, siblings directly on PonyTown!!
 -  More links from what ever!!
--  (That's aactually a W.I.P)
+
+   [SATIRE_COMICS](https://readmycomic.straw.page)
 -  ### Fandoms I'm in ATM -
 -  Stardew Valley
 -  Dandy's World
