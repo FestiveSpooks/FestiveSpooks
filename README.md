@@ -33,6 +33,9 @@
 -  StrawberryCookie (Sprout x Ginger)
 -  BubblePop (Looey x Poppy)
 -  GlitterHugs (Glisten x Goob)
+-  AngryHugs (Shrimpo x Goob)
+-  AngryTea (Shrimpo x Teagan)
+-  BrightNose (Brightney x Rudie)
 -  TeaCase (Teagan x Rodger)
 -  CleaningFossil (Tisha x Shelly)
 -  CleanTea??? (Teagan x Tisha)
@@ -40,6 +43,9 @@
 -  DramaCrafts (RnD x Scraps)
 - CookieVision (Ginger x Vee)
 - CleanScreen (Tisha x Vee)
+- HauntedLibrary (Connie x Brightney)
+- HorrorShow (Connie x Vee)
+- BrightCrafts (Brightney x Scraps)
 
    ## Handlers
 - Shellvision Handlers (Veronica Hurley x Shanon Mendez)
