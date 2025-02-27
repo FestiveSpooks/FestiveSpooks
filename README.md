@@ -46,6 +46,12 @@
 - HauntedLibrary (Connie x Brightney)
 - HorrorShow (Connie x Vee)
 - BrightCrafts (Brightney x Scraps)
+- GambleWings (Gigi x Flutter)
+- JollyWings (Rudie x Flutter)
+- GamblingGhost (Connie x Gigi)
+- GambleShells (Gigi x Shelly
+- FlowerWings (Dandy x Flutter)
+- WinterFlower (Bobbette x Dandy)
 
    ## Handlers
 - Shellvision Handlers (Veronica Hurley x Shanon Mendez)
