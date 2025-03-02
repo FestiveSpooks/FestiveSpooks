@@ -5,8 +5,8 @@
 - *🇨🇦, ♐, Birthday is on December 2nd O_o*
 -  I will respect your ships as long as you respect mine (I DO NOT ACCEPT PROSHIPPERS AND EVEN MORE ILLEGAL STUFF.
 -  If you like I can match with you as any ship, duo, siblings directly on PonyTown!!
+-  I'm practically one of the kindest dandy's world/Regretevator Player out there! (Unless some one makes me crash out, Or I am joking around, Or I am in a bad mood.)
 -  More links from what ever!!
-
    [SATIRE_COMICS](https://readmycomic.straw.page)
 -  ### Fandoms I'm in ATM -
 -  Stardew Valley
@@ -52,6 +52,8 @@
 - GambleShells (Gigi x Shelly
 - FlowerWings (Dandy x Flutter)
 - WinterFlower (Bobbette x Dandy)
+- Nightlight (Brightney x Astro)
+- Vee x Glisten (FashionShow)
 
    ## Handlers
 - Shellvision Handlers (Veronica Hurley x Shanon Mendez)
