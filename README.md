@@ -53,7 +53,7 @@
 - FlowerWings (Dandy x Flutter)
 - WinterFlower (Bobbette x Dandy)
 - Nightlight (Brightney x Astro)
-- Vee x Glisten (FashionShow)
+- FashionShow (Vee x Glisten)
 
    ## Handlers
 - Shellvision Handlers (Veronica Hurley x Shanon Mendez)
