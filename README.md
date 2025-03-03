@@ -7,7 +7,7 @@
 -  If you like I can match with you as any ship, duo, siblings directly on PonyTown!!
 -  I'm practically one of the kindest dandy's world/Regretevator Player out there! (Unless some one makes me crash out, Or I am joking around, Or I am in a bad mood.)
 -  More links from what ever!!
-   [SATIRE_COMICS](https://readmycomic.straw.page)
+   [SATIRE_COMICS](https://readmycomic.straw.page) || [PATREON_Recommended](https://www.patreon.com/c/r3d_barron/about)
 -  ### Fandoms I'm in ATM -
 -  Stardew Valley
 -  Dandy's World
