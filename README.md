@@ -21,42 +21,43 @@
 -  The Substance
 
    ### Ships that you might not like so I'm warning ya rn!! (WARNING: MULTISHIPPER)||DANDYS WORLD
+   Ships that I support stay normal, Ships I really ship are bolded
 ## Toons
 -  ShellVision (Vee x Shelly)
 -  MoonFlower (Astro x Dandy)
--  MoonBerry (Astro x Sprout)
--  MoonShell (Astro x Shelly)
--  BerryVision (Sprout x Vee)
--  FestiveSpooks / ChristmasSpirit (Rudie x Connie)
+-  **MoonBerry (Astro x Sprout)**
+-  **MoonShell (Astro x Shelly)**
+-  **BerryVision (Sprout x Vee)**
+-  **FestiveSpooks / ChristmasSpirit (Rudie x Connie)**
 -  ChristmasCookies (Rudie x Ginger)
 -  FestiveCookies (Bobbette x Ginger)
--  StrawberryCookie (Sprout x Ginger)
--  BubblePop (Looey x Poppy)
--  GlitterHugs (Glisten x Goob)
+- **StrawberryCookie (Sprout x Ginger)**
+-  **BubblePop (Looey x Poppy)**
+-  **GlitterHugs (Glisten x Goob)**
 -  AngryHugs (Shrimpo x Goob)
 -  AngryTea (Shrimpo x Teagan)
 -  BrightNose (Brightney x Rudie)
--  TeaCase (Teagan x Rodger)
--  CleaningFossil (Tisha x Shelly)
+-  **TeaCase (Teagan x Rodger)**
+-  **CleaningFossil (Tisha x Shelly)**
 -  CleanTea??? (Teagan x Tisha)
 -  CleaningCrafts (Scraps x Tisha)
 -  DramaCrafts (RnD x Scraps)
-- CookieVision (Ginger x Vee)
+- **CookieVision (Ginger x Vee)**
 - CleanScreen (Tisha x Vee)
-- HauntedLibrary (Connie x Brightney)
-- HorrorShow (Connie x Vee)
+- **HauntedLibrary (Connie x Brightney)**
+- **HorrorShow (Connie x Vee)**
 - BrightCrafts (Brightney x Scraps)
 - GambleWings (Gigi x Flutter)
 - JollyWings (Rudie x Flutter)
 - GamblingGhost (Connie x Gigi)
-- GambleShells (Gigi x Shelly
+- GambleShells (Gigi x Shelly)
 - FlowerWings (Dandy x Flutter)
-- WinterFlower (Bobbette x Dandy)
+- **WinterFlower (Bobbette x Dandy)**
 - Nightlight (Brightney x Astro)
-- FashionShow (Vee x Glisten)
+- **FashionShow (Vee x Glisten)**
 
    ## Handlers
-- Shellvision Handlers (Veronica Hurley x Shanon Mendez)
+- **Shellvision Handlers (Veronica Hurley x Shanon Mendez)**
 - MoonFlower Handlers (Devan Reed x Austin Russo)
 
 ![Screenshot 2025-02-27 7 48 28 AM](https://github.com/user-attachments/assets/fb61ad01-fbe0-45f9-946b-4175097bd4c9)
