@@ -60,4 +60,5 @@
 - **Shellvision Handlers (Veronica Hurley x Shanon Mendez)**
 - MoonFlower Handlers (Devan Reed x Austin Russo)
 
-![Screenshot 2025-02-27 7 48 28 AM](https://github.com/user-attachments/assets/fb61ad01-fbe0-45f9-946b-4175097bd4c9)
+![Drawing-61 sketchpad](https://github.com/user-attachments/assets/74c800e2-45f7-4c20-99a9-38c7074595b2)
+Yes, Vee is giving a Squid Game Thanos Reference
