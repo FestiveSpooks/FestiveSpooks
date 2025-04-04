@@ -1,4 +1,5 @@
-## HEYO!!!!!
+
+## ════ ⋆★HEYO!!!★⋆ ════
 - *name perferred is Gen but you can call me anything you're comfortable with >_^*
 - *I play games like Dandy's World, Regretevator on roblox, Stardew Valley, Fnaf, etc!!*
 - *I am currently working on my art pages so that will be coming out soon* 
@@ -21,42 +22,54 @@
 -  The Substance
 
    ### Ships that you might not like so I'm warning ya rn!! (WARNING: MULTISHIPPER)||DANDYS WORLD
-   Ships that I support stay normal, Ships I really ship are bolded
-## Toons
--  ShellVision (Vee x Shelly)
--  MoonFlower (Astro x Dandy)
--  **MoonBerry (Astro x Sprout)**
--  **MoonShell (Astro x Shelly)**
--  **BerryVision (Sprout x Vee)**
--  **FestiveSpooks / ChristmasSpirit (Rudie x Connie)**
--  ChristmasCookies (Rudie x Ginger)
--  FestiveCookies (Bobbette x Ginger)
-- **StrawberryCookie (Sprout x Ginger)**
--  **BubblePop (Looey x Poppy)**
--  **GlitterHugs (Glisten x Goob)**
--  AngryHugs (Shrimpo x Goob)
--  AngryTea (Shrimpo x Teagan)
--  BrightNose (Brightney x Rudie)
--  **TeaCase (Teagan x Rodger)**
--  **CleaningFossil (Tisha x Shelly)**
--  CleanTea??? (Teagan x Tisha)
--  CleaningCrafts (Scraps x Tisha)
--  DramaCrafts (RnD x Scraps)
-- **CookieVision (Ginger x Vee)**
-- CleanScreen (Tisha x Vee)
-- **HauntedLibrary (Connie x Brightney)**
-- **HorrorShow (Connie x Vee)**
-- BrightCrafts (Brightney x Scraps)
-- GambleWings (Gigi x Flutter)
-- JollyWings (Rudie x Flutter)
-- GamblingGhost (Connie x Gigi)
-- GambleShells (Gigi x Shelly)
-- FlowerWings (Dandy x Flutter)
-- **WinterFlower (Bobbette x Dandy)**
-- Nightlight (Brightney x Astro)
-- **FashionShow (Vee x Glisten)**
-
+   🎀 - I ship it
+   
+   🔥 - I like it, I don't ship it though
+   
+   ❤‍🩹 - Starting to dislike the ship but i'll still support it
+   
+   🍪 - I LOVE THIS SHIP OMG IM BUSTING
+  ## Toons
+- 🔥ShellVision (Vee x Shelly)
+- 🔥MoonFlower (Astro x Dandy)
+- 🍪MoonBerry (Astro x Sprout)
+- 🍪MoonShell (Astro x Shelly)
+- 🎀BerryVision (Sprout x Vee
+- 🎀FestiveSpooks / ChristmasSpirit (Rudie x Connie
+- 🔥ChristmasCookies (Rudie x Ginger)
+- 🔥FestiveCookies (Bobbette x Ginger)
+- 🔥StrawberryCookie (Sprout x Ginger
+- 🎀BubblePop (Looey x Poppy)
+- 🎀GlitterHugs (Glisten x Goob)
+- ❤‍🩹AngryHugs (Shrimpo x Goob)
+- 🔥AngryTea (Shrimpo x Teagan)
+- 🔥BrightNose (Brightney x Rudie)
+- 🎀TeaCase (Teagan x Rodger)
+- 🍪CleaningFossil (Tisha x Shelly)
+- 🎀CleanTea??? (Teagan x Tisha)
+- 🎀CleaningCrafts (Scraps x Tisha)
+- 🎀DramaCrafts (RnD x Scraps)
+- 🍪CookieVision (Ginger x Vee)
+- ❤‍🩹CleanScreen (Tisha x Vee)
+- 🎀HauntedLibrary (Connie x Brightney)
+- 🔥HorrorShow (Connie x Vee)
+- 🔥BrightCrafts (Brightney x Scraps)
+- 🍪GambleWings (Gigi x Flutter)
+- ❤‍🩹JollyWings (Rudie x Flutter)
+- 🔥GamblingGhost (Connie x Gigi)
+- 🔥GambleShells (Gigi x Shelly)
+- 🔥FlowerWings (Dandy x Flutter)
+- ❤‍🩹WinterFlower (Bobbette x Dandy)
+- 🔥Nightlight (Brightney x Astro)
+- 🎀FashionShow (Vee x Glisten)
+- 🍪CandyHugs (Yatta x Goob)
+- 🔥CandyCrafts (Yatta x Scraps)
+- 🔥BalloonParty (Yatta x Looey)
+- 🍪PinataBot (Yatta x Vee)
+- 🍪DinoParty (Yatta x Vee)
    ## Handlers
-- **Shellvision Handlers (Veronica Hurley x Shanon Mendez)**
-- MoonFlower Handlers (Devan Reed x Austin Russo)
-![Drawing-69 sketchpad (1)](https://github.com/user-attachments/assets/3fa1b52a-aba1-4bbd-9885-10fd14feaa25)
+- 🎀Shellvision Handlers (Veronica Hurley x Shanon Mendez)
+- 🎀MoonFlower Handlers (Devan Reed x Austin Russo)
+  
+# 🎀─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───🎀
+![Drawing-75 sketchpad (2)](https://github.com/user-attachments/assets/02c96d4a-2af0-4650-8b42-2ec3723241f7)
