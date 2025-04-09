@@ -33,11 +33,12 @@
 - 🔥ShellVision (Vee x Shelly)
 - 🔥MoonFlower (Astro x Dandy)
 - 🍪MoonBerry (Astro x Sprout)
+- 🍪BerryFunny (Looey x Sprout)
 - 🍪MoonShell (Astro x Shelly)
 - 🔥MoonCake (Astro x Cosmo)
 - 🍪ShellCake (Shelly x Cosmo)
 - 🔥FruitCake (Sprout x Cosmo)
-- 🎀BerryVision (Sprout x Vee
+- 🎀BerryVision (Sprout x Vee)
 - 🎀FestiveSpooks / ChristmasSpirit (Rudie x Connie
 - 🔥ChristmasCookies (Rudie x Ginger)
 - 🔥FestiveCookies (Bobbette x Ginger)
@@ -70,6 +71,7 @@
 - 🔥BalloonParty (Yatta x Looey)
 - 🍪PinataBot (Yatta x Vee)
 - 🍪DinoParty (Yatta x Vee)
+- 🍪PartyPopper (Yatta x Poppy)
    ## Handlers
 - 🎀Shellvision Handlers (Veronica Hurley x Shanon Mendez)
 - 🎀MoonFlower Handlers (Devan Reed x Austin Russo)
