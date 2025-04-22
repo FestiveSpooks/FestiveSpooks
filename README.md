@@ -7,6 +7,11 @@
 -  I will respect your ships as long as you respect mine (I DO NOT ACCEPT PROSHIPPERS AND EVEN MORE ILLEGAL STUFF.
 -  If you like I can match with you as any ship, duo, siblings directly on PonyTown!!
 -  I'm practically one of the kindest dandy's world/Regretevator Player out there! (Unless some one makes me crash out, Or I am joking around, Or I am in a bad mood.)
+-  *I am the*
+  **CookieVision CEO**
+ Trust...
+
+
 -  More links from what ever!!
    [SATIRE_COMICS](https://readmycomic.straw.page) || [PATREON_Recommended](https://www.patreon.com/c/r3d_barron/about)
 -  ### Fandoms I'm in ATM -
@@ -82,3 +87,14 @@
 https://github.com/R3dBarron
 
 Old Github ^
+
+
+
+
+
+# DNI list
+* People under 12! (Unless I personally know you)
+* Proshippers , darkshippers, problematic/Rude people , Racists , homophobes , Roleplayers!
+* Hazbin Hotel , Helluva Boss fandom (DNIUF)
+* Melani supporters (Please gtfo, I got brought up to that stupid drama once)
+## I'm not a big hater! so this is it so far, Might add more. 
