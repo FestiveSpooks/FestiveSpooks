@@ -39,9 +39,9 @@
 - 🔥MoonFlower (Astro x Dandy)
 - 🍪MoonBerry (Astro x Sprout)
 - 🍪BerryFunny (Looey x Sprout)
-- 🍪MoonShell (Astro x Shelly)
-- 🔥MoonCake (Astro x Cosmo)
-- 🍪ShellCake (Shelly x Cosmo)
+- 🎀MoonShell (Astro x Shelly)
+- 🎀MoonCake (Astro x Cosmo)
+- 🎀ShellCake (Shelly x Cosmo)
 - 🔥FruitCake (Sprout x Cosmo)
 - 🎀BerryVision (Sprout x Vee)
 - 🎀FestiveSpooks / ChristmasSpirit (Rudie x Connie
