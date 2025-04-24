@@ -96,5 +96,5 @@ Old Github ^
 * People under 12! (Unless I personally know you)
 * Proshippers , darkshippers, problematic/Rude people , Racists , homophobes , Roleplayers!
 * Hazbin Hotel , Helluva Boss fandom (DNIUF)
-* Melani supporters (Please gtfo, I got brought up to that stupid drama once)
+* Melanie supporters (Please gtfo, I got brought up to that stupid drama once)
 ## I'm not a big hater! so this is it so far, Might add more. 
