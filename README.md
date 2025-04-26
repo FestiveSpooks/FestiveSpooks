@@ -1,3 +1,4 @@
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316coycntj43qlsiyzir7mpccuky&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0d1117&interchange=true&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
 ## ════ ⋆★HEYO!!!★⋆ ════
 - *name perferred is Gen but you can call me anything you're comfortable with >_^*
@@ -98,3 +99,6 @@ Old Github ^
 * Hazbin Hotel , Helluva Boss fandom (DNIUF)
 * Melanie supporters (Please gtfo, I got brought up to that stupid drama once)
 ## I'm not a big hater! so this is it so far, Might add more. 
+![Screenshot 2025-04-26 3 01 40 AM](https://github.com/user-attachments/assets/a8563869-40e3-484c-91a3-788e1b5beb69)
+
+Full pfp image
