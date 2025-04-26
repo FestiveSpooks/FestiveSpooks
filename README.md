@@ -99,6 +99,6 @@ Old Github ^
 * Hazbin Hotel , Helluva Boss fandom (DNIUF)
 * Melanie supporters (Please gtfo, I got brought up to that stupid drama once)
 ## I'm not a big hater! so this is it so far, Might add more. 
-![Screenshot 2025-04-26 3 01 40 AM](https://github.com/user-attachments/assets/a8563869-40e3-484c-91a3-788e1b5beb69)
+![Screenshot 2025-04-26 3 04 30 AM](https://github.com/user-attachments/assets/2880992b-fd13-4d60-bfd3-a9739de26e66)
 
 Full pfp image
