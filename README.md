@@ -20,6 +20,9 @@
  Trust...
 
 
+![Drawing-90 sketchpad (3)](https://github.com/user-attachments/assets/22bd21d1-d980-428f-a9b4-dc8211a8c28c)
+
+
 -  More links from what ever!!
    [SATIRE_COMICS](https://readmycomic.straw.page) || [PATREON_Recommended](https://www.patreon.com/c/r3d_barron/about)
 -  ### Fandoms I'm in ATM -
