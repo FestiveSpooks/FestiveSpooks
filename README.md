@@ -1,5 +1,4 @@
-**WELCOME TO A GINGER FICTKIN / SONA PAGE!!! I AM GEN**
-
+**🍪🎀ɪꜰ ʏᴏᴜ ᴇᴠᴇʀ ᴛʀʏ ᴛᴏ ʟᴇᴀᴠᴇ ᴍᴇ, ɪ'ʟʟ ꜰɪɴᴅ ʏᴏᴜ, ᴠᴇᴇ** 🩷
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316coycntj43qlsiyzir7mpccuky&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0d1117&interchange=true&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
 ## ════ ⋆★HEYO!!!★⋆ ════
 - *name perferred is Gen but you can call me anything you're comfortable with >_^*
@@ -108,7 +107,6 @@ Old Github ^
 * Proshippers , darkshippers, problematic/Rude people , Racists , homophobes , Roleplayers!
 * Hazbin Hotel , Helluva Boss fandom (DNIUF)
 * Melanie supporters (Please gtfo, I got brought up to that stupid drama once)
-## I'm not a big hater! so this is it so far, Might add more. 
-![Screenshot 2025-04-26 3 04 30 AM](https://github.com/user-attachments/assets/2880992b-fd13-4d60-bfd3-a9739de26e66)
+  **I'm not a big hater! so this is it so far, Might add more.**
 
-Full pfp image
+**📺🎤ɹǝɓuı⅁ 'noʎ puıɟ ll,I 'ǝɯ ǝʌɐǝl oʇ ʎɹʇ ɹǝʌǝ noʎ ɟI** 💚
