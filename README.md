@@ -7,7 +7,7 @@
 - I go by any pronouns
 - *I am currently working on my art pages so that will be coming out soon* 
 - *🇨🇦, ♐, Birthday is on December 2nd O_o*
--  I will respect your ships as long as you respect mine (I DO NOT ACCEPT PROSHIPPERS AND EVEN MORE ILLEGAL STUFF.
+-  I will respect your ships as long as you respect mine (I DO NOT ACCEPT PROSHIPPERS AND EVEN MORE ILLEGAL STUFF.)
 -  If you like I can match with you as any ship, duo, siblings directly on PonyTown!!
 -  I'm practically one of the kindest dandy's world/Regretevator Player out there! (Unless some one makes me crash out, Or I am joking around, Or I am in a bad mood.)
 -  Fun silly people interact, Very easy to hurt my feeling so Please interact with care.
@@ -91,9 +91,11 @@
    ## Handlers
 - 🎀Shellvision Handlers (Veronica Hurley x Shanon Mendez)
 - 🎀MoonFlower Handlers (Devan Reed x Austin Russo)
-  
+
+  ![Drawing-86 sketchpad (4)](https://github.com/user-attachments/assets/17cfd3f1-343d-4635-a30b-18eed582dc27)
+
+
 # 🎀─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───🎀
-![Drawing-75 sketchpad (2)](https://github.com/user-attachments/assets/02c96d4a-2af0-4650-8b42-2ec3723241f7)
 
 https://github.com/R3dBarron
 
