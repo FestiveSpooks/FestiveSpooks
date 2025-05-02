@@ -1,4 +1,5 @@
 **🍪🎀ɪꜰ ʏᴏᴜ ᴇᴠᴇʀ ᴛʀʏ ᴛᴏ ʟᴇᴀᴠᴇ ᴍᴇ, ɪ'ʟʟ ꜰɪɴᴅ ʏᴏᴜ, ᴠᴇᴇ** 🩷
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316coycntj43qlsiyzir7mpccuky&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0d1117&interchange=true&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
 ## ════ ⋆★HEYO!!!★⋆ ════
 - *name perferred is Gen but you can call me anything you're comfortable with >_^*
