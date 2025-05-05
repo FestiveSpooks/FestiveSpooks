@@ -90,9 +90,7 @@
 - 🍪DinoParty (Yatta x Vee)
 - 🍪PartyPopper (Yatta x Poppy)
    ## Handlers
-- 🎀Shellvision Handlers (Veronica Hurley x Shanon Mendez)
-- 🎀MoonFlower Handlers (Devan Reed x Austin Russo)
-
+- 🎀 Any Handler ships!
   ![Drawing-86 sketchpad (4)](https://github.com/user-attachments/assets/17cfd3f1-343d-4635-a30b-18eed582dc27)
 
 
