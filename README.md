@@ -1,6 +1,7 @@
 **🍪🎀ɪꜰ ʏᴏᴜ ᴇᴠᴇʀ ᴛʀʏ ᴛᴏ ʟᴇᴀᴠᴇ ᴍᴇ, ɪ'ʟʟ ꜰɪɴᴅ ʏᴏᴜ, ᴠᴇᴇ** 🩷
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316coycntj43qlsiyzir7mpccuky&cover_image=true&theme=natemoo-re&show_offline=false&background_color=0d1117&interchange=true&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
+
 ## ════ ⋆★HEYO!!!★⋆ ════
 - *name perferred is Gen but you can call me anything you're comfortable with >_^*
 - *I play games like Dandy's World, Regretevator on roblox, Stardew Valley, Fnaf, etc!!*
@@ -13,7 +14,7 @@
 -  Fun silly people interact, Very easy to hurt my feeling so Please interact with care.
 -  Friend me first because I chicken out to friend you, but also notify me when you want to be friends!
 -  #1 Ships supporter
--  **DON'T COVER ME OR HIDE ME WITHOUT WHISPERING TO LET ME KNOW (I DON'T HIDE PEOPLE BECAUSE I DON'T KNOW IF THEY END UP BEING FRIENDS WITH MY FRIENDS AND YOU NEVER KNOW IF YOU GET ALONG IN THE END**
+-  **DON'T COVER ME OR HIDE ME WITHOUT WHISPERING TO LET ME KNOW (I DON'T HIDE PEOPLE BECAUSE I DON'T KNOW IF THEY END UP BEING FRIENDS WITH MY FRIENDS AND YOU NEVER KNOW IF YOU GET ALONG IN THE END (Just know that hiding me also affects me and I find as if I were a child getting timeout , I basically get sad)**
 -  To people close to me, If I seriously make you uncomfortable: let me know!!! :3
  -  *I am the*
   **CookieVision CEO**
