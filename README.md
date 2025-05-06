@@ -20,13 +20,14 @@
   **CookieVision CEO**
  Trust...
 
+-  More links from what ever!!
+   [SATIRE_COMICS](https://readmycomic.straw.page) || [SATIRE_COMICS TEASERS](https://readmycomicreadmycomicteasers.straw.page)|| [PATREON_Recommended](https://www.patreon.com/c/r3d_barron/about)
 
 ![Drawing-90 sketchpad (3)](https://github.com/user-attachments/assets/22bd21d1-d980-428f-a9b4-dc8211a8c28c)
 
 ![Drawing-86 sketchpad (1)](https://github.com/user-attachments/assets/e1168956-c1dc-4dbd-8aa1-ef1e12daf916)
 
--  More links from what ever!!
-   [SATIRE_COMICS](https://readmycomic.straw.page) || [PATREON_Recommended](https://www.patreon.com/c/r3d_barron/about)
+
 -  ### Fandoms I'm in ATM -
 -  Stardew Valley
 -  Dandy's World
