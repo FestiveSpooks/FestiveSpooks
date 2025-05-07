@@ -111,6 +111,7 @@ Old Github ^
 * Proshippers , darkshippers, problematic/Rude people , Racists , homophobes , Roleplayers!
 * Hazbin Hotel , Helluva Boss fandom (DNIUF)
 * Melanie supporters (Please gtfo, I got brought up to that stupid drama once)
+* **DON'T STEAL MY PONIES PARTS FROM ME OR COPY ISTG**
   **I'm not a big hater! so this is it so far, Might add more.**
 
 **📺🎤ɹǝɓuı⅁ 'noʎ puıɟ ll,I 'ǝɯ ǝʌɐǝl oʇ ʎɹʇ ɹǝʌǝ noʎ ɟI** 💚
