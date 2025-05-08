@@ -101,6 +101,8 @@ https://github.com/R3dBarron
 
 Old Github ^
 
+(And oml someone plplsplspls match w me /nf)
+
 
 ![Drawing-96 sketchpad](https://github.com/user-attachments/assets/52c5009e-006b-4fdb-bb7e-6e1ab9316e3a)
 
