@@ -115,6 +115,7 @@ Old Github ^
 * Melanie supporters (Please gtfo, I got brought up to that stupid drama once)
 * **DON'T STEAL MY PONIES PARTS FROM ME OR COPY ISTG**
   **I'm not a big hater! so this is it so far, Might add more.**
+ Do NOT give my ponies cat/bunny/anything on my pony unless ur muted and you want to crown me, if you do i will get very mad and very agressively rude... (You have been warned)
 
 ![Screenshot 2025-05-08 2 14 51 AM](https://github.com/user-attachments/assets/7e1f1859-6bd0-4eaa-b907-465a45f71a9d)
 
