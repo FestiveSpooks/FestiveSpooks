@@ -18,4 +18,4 @@
 
 • I quit dw because fandom is toxic and disgusting
 • i like mario and games that relate mario kart.
-also.. pt dw community IS okay..
+also.. pt dw community IS okay..  Mario fandom INT!! Supportive of all ships of the Mario community
