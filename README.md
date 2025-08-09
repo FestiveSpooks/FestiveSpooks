@@ -7,13 +7,14 @@
 -  interacting with me is fine when I am in the current mood to interact with others (I feel positive and don't look negative), **Very easy to hurt my feelings** so Please interact with care I swear, I am sensitive
 -  Friend me unless you ask me to friend you.
 -  #1 Ships supporter
+-  Bisexual, Demi-Girl, Hypersexual
 
     **CookieVision Ceo**
 
 
 *news*
 
-• I quit dw because fandom is toxic and disgusting
+•RosaDaisy #1 Freakout
 • i like mario and games that relate mario kart.
 
 also.. pt dw community IS okay..  
@@ -30,7 +31,7 @@ Int if you ship
 - (idk a name) Pauline x Waluigi
 - Waluigi x Daisy
 - Mario x Peach (Platonic or romantic)
-- Fruitmonster / Bowser x Peach (mainly a onesided au or divorce but idc^^)
+- Fruitmonster / BowPeach (Bowser x Peach, mainly a onesided au or divorce but idc^^)
 - BeautySinging / Peach x Pauline
 
 - will add more later!!
