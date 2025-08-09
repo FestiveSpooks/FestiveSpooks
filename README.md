@@ -22,3 +22,16 @@ Mario fandom INT!! Supportive of all
 ships of the Mario community
 
 ![IMG_2178](https://github.com/user-attachments/assets/f23e10e4-548f-4b57-9dd1-658501b72522)
+
+Int if you ship
+
+- GalaxyFlowers / RosaDaisy (Rosalina x Daisy)
+- SteadySweeties / Luisy (Luigi x Daisy)
+- (idk a name) Pauline x Waluigi
+- Waluigi x Daisy
+- Mario x Peach (Platonic or romantic)
+- Fruitmonster / Bowser x Peach (mainly a onesided au or divorce but idc^^)
+- BeautySinging / Peach x Pauline
+
+- will add more later!!
+
