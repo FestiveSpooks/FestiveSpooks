@@ -11,7 +11,7 @@
 
     **CookieVision Ceo**
 
-zoemira fan
+**KPOP DEMON HUNTER FANS INT PLSPLSPLSPLSPLS**
 
 *news*
 
