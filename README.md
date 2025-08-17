@@ -3,7 +3,7 @@
 
 ## ════ ⋆★Hello★⋆ ════
 - Call me Gen, Goose, Daisy, Genger or any nickname youd give me that i consent to
-- I am 15, My birthday is on december 2nd which makes me a saggitarius; I am Mexican, American, canada🔥🔥🔥‼️‼️.
+- I am almost 15, My birthday is on december 2nd which makes me a saggitarius; I am Mexican, American, canada🔥🔥🔥‼️‼️.
 -  interacting with me is fine when I am in the current mood to interact with others (I feel positive and don't look negative), **Very easy to hurt my feelings** so Please interact with care I swear, I am sensitive
 -  Friend me unless you ask me to friend you.
 -  #1 Ships supporter
