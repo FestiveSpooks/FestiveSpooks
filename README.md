@@ -36,6 +36,8 @@ Int if you ship
 - BeautySinging / Peach x Pauline
 
 - will add more later!!
+- 
+<img width="430" height="368" alt="Drawing sketchpad (1)" src="https://github.com/user-attachments/assets/c7923b48-8af6-4cff-8094-009b90992954" />
 
 
 
