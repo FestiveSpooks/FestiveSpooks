@@ -48,6 +48,11 @@ Int if you ship
 
 
 
+<img width="1414" height="1302" alt="51a9a08f-36c7-4ee4-b366-59382a3b77a8 sketchpad (1)" src="https://github.com/user-attachments/assets/1f8d90fa-b67e-477d-83af-9bc89efe6120" />
+
+
+
+
 
 [Screen recording 2025-08-25 11.32.30 PM.webm](https://github.com/user-attachments/assets/0ca7f363-cde1-4edf-922e-9cca906dd636)
 
