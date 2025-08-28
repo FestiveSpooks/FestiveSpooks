@@ -57,7 +57,8 @@ Int if you ship
 # 
 
 # DNI
-<img src="https://media.tenor.com/ksfu-cKAITUAAAAM/sabrina-carpenter-car.gif" alt="a woman is drinking wine while driving a car"/><img width="184" height="200" alt="image" src="https://github.com/user-attachments/assets/3c9f6673-0d0a-4c6e-8b05-6570790d4fbd" />
+![sabrina-carpenter-sabrina-on-a-car](https://github.com/user-attachments/assets/adeb3d05-a98f-4850-9d22-d59e14d22182)
+
 
 
 -Basic Criteria
@@ -89,11 +90,4 @@ Int if you ship
 
 ![typewriter (3)](https://github.com/user-attachments/assets/ade2229a-8715-4fe4-a1f9-d35bea6b12a5)
 
-
-
-https://github.com/user-attachments/assets/c6cbf3ca-ea20-4cff-8c96-d04740978753
-
-
-
-https://github.com/user-attachments/assets/37867e6c-c771-45f5-baca-3608c1b20c0c
 
