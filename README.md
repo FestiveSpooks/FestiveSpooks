@@ -91,6 +91,7 @@ Int if you ship
 ![typewriter (3)](https://github.com/user-attachments/assets/ade2229a-8715-4fe4-a1f9-d35bea6b12a5)
 #
 # unless if you want to see... the cringe satire dw x gacha videos i make for fun..!
+(I am not voice revealing, so none of this is actually what i sound like, you can quicken the speed, change the pitch but it aint gonna get u no where btw..)
 #
 
 [Screen recording 2025-08-30 5.01.35 AM.webm](https://github.com/user-attachments/assets/4e67179b-7c9b-4770-abde-9b68ace66640)
