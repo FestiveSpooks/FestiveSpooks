@@ -90,7 +90,8 @@ Int if you ship
 
 ![typewriter (3)](https://github.com/user-attachments/assets/ade2229a-8715-4fe4-a1f9-d35bea6b12a5)
 #
-# unless if you want to see... the cringe satire dw x gacha videos i make for fun..!
+# unless if you want to see... the cringe satire dw x gacha videos i make for fun..! <img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a_original.gif?v=1c1ba870"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8e56accc-af88-4fd0-bb77-9790884ad4e3" />
+
 (I am not voice revealing, so none of this is actually what i sound like, you can quicken the speed, change the pitch but it aint gonna get u no where btw..)
 #
 
