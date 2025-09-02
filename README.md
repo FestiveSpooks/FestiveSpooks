@@ -96,4 +96,6 @@ Int if you ship
 #
 
 [Screen recording 2025-08-30 5.01.35 AM.webm](https://github.com/user-attachments/assets/4e67179b-7c9b-4770-abde-9b68ace66640)
+<img width="2676" height="2008" alt="Drawing-22 sketchpad (4)" src="https://github.com/user-attachments/assets/d4a00da8-31f9-4c22-9f7d-768963d0fc4e" />
+
 
