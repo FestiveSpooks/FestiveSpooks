@@ -104,3 +104,8 @@ Int if you ship
 https://github.com/user-attachments/assets/8fb3936c-380d-4fc9-b72e-ed5ab7cb9723
 
 
+
+
+https://github.com/user-attachments/assets/d3d476d1-a4b3-448c-8805-f75c37e38e3c
+
+lazy animation i made bonus;
