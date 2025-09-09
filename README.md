@@ -109,3 +109,11 @@ https://github.com/user-attachments/assets/8fb3936c-380d-4fc9-b72e-ed5ab7cb9723
 https://github.com/user-attachments/assets/d3d476d1-a4b3-448c-8805-f75c37e38e3c
 
 lazy animation i made bonus;
+
+planned future pfp set for tmw maybe
+
+![IMG_2353](https://github.com/user-attachments/assets/2d7f67eb-aac5-4aae-8c73-ce44cde637c3)
+
+giggles hehehe nervously.. gulps uhh!
+[IMG_2352](https://github.com/user-attachments/assets/3d70670a-8959-4cf0-ae9d-18b254e1b987)
+
