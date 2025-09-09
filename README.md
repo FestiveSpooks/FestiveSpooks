@@ -116,5 +116,6 @@ planned future pfp set for tmw maybe
 
 giggles hehehe nervously.. gulps uhh!
 
-[IMG_2352](https://github.com/user-attachments/assets/3d70670a-8959-4cf0-ae9d-18b254e1b987)
+![487525703-3d70670a-8959-4cf0-ae9d-18b254e1b987](https://github.com/user-attachments/assets/a11e5ef8-4d09-41aa-9c7e-3e5fd23ad7c4)
+
 
