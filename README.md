@@ -110,9 +110,10 @@ https://github.com/user-attachments/assets/d3d476d1-a4b3-448c-8805-f75c37e38e3c
 
 lazy animation i made bonus;
 
-planned future pfp set for tmw maybe
+pfp:
 
-![IMG_2353](https://github.com/user-attachments/assets/2d7f67eb-aac5-4aae-8c73-ce44cde637c3)
+<img width="393" height="273" alt="Screenshot 2025-09-17 2 46 20 PM" src="https://github.com/user-attachments/assets/87e3783e-16ca-43ae-8bf9-ae3341dc2b62" />
+
 
 giggles hehehe nervously.. gulps uhh!
 
