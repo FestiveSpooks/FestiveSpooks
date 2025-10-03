@@ -117,5 +117,10 @@ giggles hehehe nervously.. gulps uhh!
 ![IMG_2414](https://github.com/user-attachments/assets/f478e979-49cd-4ec9-9305-c7abcc20d432)
 
 
+made by me:
+<img width="988" height="775" alt="Drawing-30 sketchpad" src="https://github.com/user-attachments/assets/b49c6a6d-728a-42d6-b4e5-9bfa825f008e" />
+
+
+
 ![AN16vSkgQLTaDjLn2aH9hiGzCoA0p7p4Ib3WB27F_7UH5hi7XaVuwKbSN9dya2X71OsIYM8G8GPOUxWwaYWhHg](https://github.com/user-attachments/assets/c5e65f17-9161-4902-beb2-adbcc16f0749)
 
