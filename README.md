@@ -1,5 +1,4 @@
-![TextStudio-Typewriter (3)](https://github.com/user-attachments/assets/84005371-1cd7-4dc3-9d7f-3f9be5b04dfe)
-
+![TextStudio-Typewriter (6)](https://github.com/user-attachments/assets/0347c850-ac01-46d7-9e65-3da87d91ba2a)
 ![eternal-sugar-cookie](https://github.com/user-attachments/assets/64a98001-32f8-42d5-a2ab-c76f54229152)
 # 
 
@@ -88,7 +87,7 @@ Int if you ship
 ![eternal-sugar-cookie-eternal-sugar (1)](https://github.com/user-attachments/assets/f8573d8b-091b-448b-8672-3191c175a38f)
  
 
-![TextStudio-Typewriter (4)](https://github.com/user-attachments/assets/7db3a6f8-47e2-457f-afe2-eabc80bbee89)
+![TextStudio-Typewriter (5)](https://github.com/user-attachments/assets/9ed90f8f-d7f7-46dc-86ab-fa35016eeb4a)
 # unless if you want to see... the cringe satire dw x gacha videos i make for fun..! <img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a_original.gif?v=1c1ba870"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8e56accc-af88-4fd0-bb77-9790884ad4e3" />
 
 (I am not voice revealing, so none of this is actually what i sound like, you can quicken the speed, change the pitch but it aint gonna get u no where btw..)
@@ -116,3 +115,7 @@ giggles hehehe nervously.. gulps uhh!
 
 
 ![IMG_2414](https://github.com/user-attachments/assets/f478e979-49cd-4ec9-9305-c7abcc20d432)
+
+
+![AN16vSkgQLTaDjLn2aH9hiGzCoA0p7p4Ib3WB27F_7UH5hi7XaVuwKbSN9dya2X71OsIYM8G8GPOUxWwaYWhHg](https://github.com/user-attachments/assets/c5e65f17-9161-4902-beb2-adbcc16f0749)
+
