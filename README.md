@@ -1,9 +1,9 @@
-![typewriter (1)](https://github.com/user-attachments/assets/43589e55-5a6b-46c9-aa86-992ed2419c7f)
+![TextStudio-Typewriter (3)](https://github.com/user-attachments/assets/84005371-1cd7-4dc3-9d7f-3f9be5b04dfe)
 
-<img src="blob:https://tenor.com/2a6a2da9-bfba-4b08-868b-41bf2b50e98b"/><img width="368" height="427" alt="image" src="https://github.com/user-attachments/assets/d23a953e-28e8-4308-bf1c-d0d4f2c4811f" />
+![eternal-sugar-cookie](https://github.com/user-attachments/assets/64a98001-32f8-42d5-a2ab-c76f54229152)
 # 
 
-## ════ ⋆★𝙼𝚊𝚗𝙲𝚑𝚒𝚕𝚍★⋆ ════
+## ════ ⋆★I'll make you a happy cookie... FOREVER!!! ^_^★⋆ ════
 
 # **= Call me Gen, Goose, Daisy, Genger or any given I consent to =**
 
@@ -57,7 +57,7 @@ Int if you ship
 # 
 
 # DNI
-![sabrina-carpenter-sabrina-on-a-car](https://github.com/user-attachments/assets/adeb3d05-a98f-4850-9d22-d59e14d22182)
+![eternal-sugar-cookie (1)](https://github.com/user-attachments/assets/a377910f-6b0b-474c-9be5-1bffb9832c34)
 
 
 
@@ -85,11 +85,10 @@ Int if you ship
 
  #
 
- ![sabrina-kiss-sabrina-carpenter](https://github.com/user-attachments/assets/2e9450bd-04b4-41c7-8830-f70ecf76e1f3)
+![eternal-sugar-cookie-eternal-sugar (1)](https://github.com/user-attachments/assets/f8573d8b-091b-448b-8672-3191c175a38f)
  
 
-![typewriter (3)](https://github.com/user-attachments/assets/ade2229a-8715-4fe4-a1f9-d35bea6b12a5)
-#
+![TextStudio-Typewriter (4)](https://github.com/user-attachments/assets/7db3a6f8-47e2-457f-afe2-eabc80bbee89)
 # unless if you want to see... the cringe satire dw x gacha videos i make for fun..! <img src="https://supplies.ju.mp/assets/images/tiny1/5d28aa7a_original.gif?v=1c1ba870"/><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/8e56accc-af88-4fd0-bb77-9790884ad4e3" />
 
 (I am not voice revealing, so none of this is actually what i sound like, you can quicken the speed, change the pitch but it aint gonna get u no where btw..)
