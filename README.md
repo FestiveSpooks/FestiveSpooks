@@ -117,10 +117,5 @@ giggles hehehe nervously.. gulps uhh!
 <img width="327" height="365" alt="Screenshot 2025-10-05 5 53 35 PM" src="https://github.com/user-attachments/assets/30b1e830-e4d6-434d-93e1-a66ea8492257" />
 
 
-made by me:
-<img width="988" height="775" alt="Drawing-30 sketchpad" src="https://github.com/user-attachments/assets/b49c6a6d-728a-42d6-b4e5-9bfa825f008e" />
-
-
-
 ![AN16vSkgQLTaDjLn2aH9hiGzCoA0p7p4Ib3WB27F_7UH5hi7XaVuwKbSN9dya2X71OsIYM8G8GPOUxWwaYWhHg](https://github.com/user-attachments/assets/c5e65f17-9161-4902-beb2-adbcc16f0749)
 
