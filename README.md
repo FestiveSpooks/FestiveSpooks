@@ -1,3 +1,5 @@
+IMPORATANT:I'll talk through ata.
+
 ![TextStudio-Typewriter (6)](https://github.com/user-attachments/assets/0347c850-ac01-46d7-9e65-3da87d91ba2a)
 ![eternal-sugar-cookie](https://github.com/user-attachments/assets/64a98001-32f8-42d5-a2ab-c76f54229152)
 # 
