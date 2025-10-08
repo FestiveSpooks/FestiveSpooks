@@ -14,7 +14,7 @@ IMPORATANT:I'll talk through ata.
   
 -  #1 Ships supporter
 
--  Bisexual, Demi-Girl, Hypersexual
+-  Bisexual, GenderFluid, Hypersexual
 
 
   #   **CookieVision Ceo**
