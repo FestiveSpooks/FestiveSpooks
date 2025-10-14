@@ -1,3 +1,7 @@
+[Screen recording 2025-10-14 2.37.45 PM.webm](https://github.com/user-attachments/assets/d921f3be-d5b2-4585-9988-2e0c733d74df)
+
+
+
 IMPORATANT:I'll talk through ata.
 
 ![TextStudio-Typewriter (6)](https://github.com/user-attachments/assets/0347c850-ac01-46d7-9e65-3da87d91ba2a)
