@@ -1,5 +1,4 @@
-[Uploading Screen recording 2025-10-14 2.40.03 PM.webm…]()
-
+[Screen recording 2025-10-14 2.40.03 PM.webm](https://github.com/user-attachments/assets/aedde22e-d662-44ba-a5e3-30aca7d88954)
 
 
 IMPORATANT:I'll talk through ata.
