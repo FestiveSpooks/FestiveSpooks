@@ -116,7 +116,6 @@ giggles hehehe nervously.. gulps uhh!
 ![487525703-3d70670a-8959-4cf0-ae9d-18b254e1b987](https://github.com/user-attachments/assets/a11e5ef8-4d09-41aa-9c7e-3e5fd23ad7c4)
 
 
-<img width="327" height="365" alt="Screenshot 2025-10-05 5 53 35 PM" src="https://github.com/user-attachments/assets/30b1e830-e4d6-434d-93e1-a66ea8492257" />
 
 
 ![AN16vSkgQLTaDjLn2aH9hiGzCoA0p7p4Ib3WB27F_7UH5hi7XaVuwKbSN9dya2X71OsIYM8G8GPOUxWwaYWhHg](https://github.com/user-attachments/assets/c5e65f17-9161-4902-beb2-adbcc16f0749)
