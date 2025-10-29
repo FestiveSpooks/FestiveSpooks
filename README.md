@@ -1,5 +1,6 @@
 IMPORATANT:I'll talk through ata.
 
+By the way my goal for scratch is to get 50 followers or something so if it's possible could anyone just like follow me or smth also!!! I make animations on there too! I could take in animation requests or etc just comment on my proflie. Thank you so much for those who took approach for this favor!
 [Screen recording 2025-10-14 2.40.03 PM.webm](https://github.com/user-attachments/assets/aedde22e-d662-44ba-a5e3-30aca7d88954)
 
 
