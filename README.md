@@ -1,9 +1,12 @@
 IMPORATANT:I'll talk through ata.
 
-By the way my goal for scratch is to get 50 followers or something so if it's possible could anyone just like follow me or smth also!!! I make animations on there too! I could take in animation requests or etc just comment on my proflie. Thank you so much for those who took approach for this favor!
+By the way my goal for scratch is to get 50 followers or something so if it's possible could anyone just like follow me or smth also!!! I make animations on there too! I could take in animation requests or etc just comment on my proflie. Thank you so much for those who took approach for this favor! & taking in art requests
 
 <img width="210" height="199" alt="Screenshot 2025-10-29 1 50 01 PM" src="https://github.com/user-attachments/assets/3f58c0f3-7d92-446c-ad1b-003435124bc4" />
-https://scratch.mit.edu/users/juliefazbearROBLOX/
+
+Profile > https://scratch.mit.edu/users/juliefazbearROBLOX/
+  
+  Art commissions > https://scratch.mit.edu/projects/1241148365
 
 [Screen recording 2025-10-14 2.40.03 PM.webm](https://github.com/user-attachments/assets/aedde22e-d662-44ba-a5e3-30aca7d88954)
 ##
