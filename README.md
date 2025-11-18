@@ -1,7 +1,5 @@
 
 
-## ════ ⋆★I'll make you a happy cookie... FOREVER!!! ^_^★⋆ ════
-
 # **= Call me Gen, Goose, Daisy, Genger or any given I consent to =**
 
 - I am almost 15, My birthday is on december 2nd which makes me a saggitarius; I am Mexican, American, canada🔥🔥🔥‼️‼️.
