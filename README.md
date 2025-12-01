@@ -9,7 +9,7 @@
 
 
 
-<img width="288" height="652" alt="Naughty Zombies - She&#39;s a Vamp (1)" src="https://github.com/user-attachments/assets/c0d183d1-dc40-4fd0-bb67-6740c9cc546d" />
+<img width="300" height="300" alt="Untitled design (2)" src="https://github.com/user-attachments/assets/0c069305-b00e-4292-8789-9a4973a4fb98" />
 
 
  
