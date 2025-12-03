@@ -1,5 +1,7 @@
 
-ok so.. no birthday wishes or celebration becayse i guess since im unactive online ppl dont come to my page anymore?- unsure brrrr still grounded and im lonelt and depress online so abc for friend named gen so cool i ride skateboards, im cool , uh i draw, im cool, i get into any thing ur into, im cool uhhh im a really great listen, i understand others feelings and emotions and im reliable if you want to vent yes!!!!! im so cool plwplwplwpslplspls someone say abc bro...
+ok so.. no birthday wishes or celebration becayse i guess since im unactive online ppl dont come to my page anymore?- unsure brrrr still grounded and im lonelt and depress online so abc for friend named gen so cool i ride skateboards, im cool , uh i draw, im cool, i get into any thing ur into, im cool uhhh im a really great listen, i understand others feelings and emotions and im reliable if you want to vent yes!!!!! 
+
+im so cool plwplwplwpslplspls someone say abc bro... i NEED a friend
 <img width="201" height="180" alt="costume1" src="https://github.com/user-attachments/assets/f54e5e16-3d2e-49aa-8a07-2b4f7865343d" />
 
 
