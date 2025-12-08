@@ -1,8 +1,4 @@
 
-<img width="201" height="180" alt="costume1" src="https://github.com/user-attachments/assets/f54e5e16-3d2e-49aa-8a07-2b4f7865343d" />
-
-
-# no force but wish me a happy bday on ata if you want ^_^🎉🎈
 [The Fall of FestiveSpooks](https://docs.google.com/document/d/15s6BUlo2dNU9SbfJumHnsIBoIsVWGBXBiRz3oQA2Rxo/edit?usp=sharing)
 
 ![Screen recording 2025-11-28 11 51 08 PM](https://github.com/user-attachments/assets/fcac4ae8-8cb7-4acc-86fe-fda59f933674)
