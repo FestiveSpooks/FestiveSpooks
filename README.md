@@ -22,9 +22,9 @@
 #
 ![6fe1646f](https://github.com/user-attachments/assets/6b3c86d8-31a1-4328-825a-a0859de67ea2)
 
-*Gen's Dictionary*
+**Gen's Dictionary**
 
-Nothing here! Come back soon!
+(Nothing here! Come back soon!)
 
 #
  
