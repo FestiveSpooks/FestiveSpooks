@@ -29,8 +29,6 @@
 
 
 
-<img width="96" height="96" alt="7f486d58" src="https://github.com/user-attachments/assets/9bf0170c-200b-4a52-b0de-6b9edd5406d4" />  ![8acc0368](https://github.com/user-attachments/assets/7495f5ca-d8c4-4dca-b0b2-46f18ff5df28)
+<img width="480" height="480" alt="7f486d58" src="https://github.com/user-attachments/assets/9bf0170c-200b-4a52-b0de-6b9edd5406d4" />   ![Cookie0600-sit_floor](https://github.com/user-attachments/assets/204f6083-675c-473a-a844-28a0a1a0ca50) ![2d7dc1af](https://github.com/user-attachments/assets/6e04c0b7-2998-4c13-8b45-443080965e60)
 
-
-![520459904-82cab84e-847a-446e-b566-de633bac5c16](https://github.com/user-attachments/assets/d040bb67-36fa-4084-be42-6b68f83be9c3)
 
