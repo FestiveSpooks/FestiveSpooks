@@ -22,7 +22,7 @@
 
 ![0038-exitbutton2](https://github.com/user-attachments/assets/0991e20d-ad09-410d-b037-962eac254f96)
 
-Gen in gen:
+Gen in Gen:
 
 ![0076-demigirl](https://github.com/user-attachments/assets/9efaa8a4-bd97-493c-99a8-da14d095d01d)
 ![0160-pupgender](https://github.com/user-attachments/assets/f2553e5a-ccd8-404d-8dbf-3719f14fcfbe) 
@@ -41,9 +41,9 @@ Gen in gen:
 <img width="500" height="50" alt="1cc9dfcc" src="https://github.com/user-attachments/assets/02a12c90-9f8b-41ae-b6ec-8c81f81fcba6" />
 
 
-**Gen's Dictionary**
+***Gen's Dictionary***
 
-(Nothing here! Come back soon!)
+**Gen in Gen:** *Gen (My name) in General.*
 
 #
  
