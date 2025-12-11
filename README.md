@@ -5,9 +5,6 @@
 
 [The Fall of FestiveSpooks](https://docs.google.com/document/d/15s6BUlo2dNU9SbfJumHnsIBoIsVWGBXBiRz3oQA2Rxo/edit?usp=sharing)
 
-**FlowerGem #1 freakout**
-
-<img width="338" height="522" alt="Screenshot 2025-12-09 7 11 12 PM" src="https://github.com/user-attachments/assets/d94ad797-ecf9-4549-b800-e8020ea86bcf" />
 
 
 
