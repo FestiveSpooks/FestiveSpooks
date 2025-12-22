@@ -1,4 +1,4 @@
-# Whn ure 💙, I'm ❤, I wna 💋 ur neck and make you 💜 all ovr
+Whn ure 💙, I'm ❤, I wna 💋 ur neck & make you 💜 all ovr
 ![blinkiesCafe-31](https://github.com/user-attachments/assets/8b6a4195-653a-4172-bbbb-9c033e6c2cd5)
 
 #
