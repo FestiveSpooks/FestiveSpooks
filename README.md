@@ -1,7 +1,8 @@
-Art by me!! Requested by someone!!
+# Art by me!! Requested by someone!!
+
 <img width="375" height="279.5" alt="Screenshot 2025-12-28 6 11 42 PM" src="https://github.com/user-attachments/assets/df05121f-9bff-4f3f-914c-beae6dc8cd7e" />
 
-
+# 
 
 # When ure 💙, I'm ❤, I wna 💋 ur neck & make u 💜 all ovr
 ![blinkiesCafe-31](https://github.com/user-attachments/assets/8b6a4195-653a-4172-bbbb-9c033e6c2cd5)
