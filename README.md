@@ -1,5 +1,5 @@
 Art by me!! Requested by someone!!
-<img width="750" height="559" alt="Screenshot 2025-12-28 6 11 42 PM" src="https://github.com/user-attachments/assets/df05121f-9bff-4f3f-914c-beae6dc8cd7e" />
+<img width="375" height="279.5" alt="Screenshot 2025-12-28 6 11 42 PM" src="https://github.com/user-attachments/assets/df05121f-9bff-4f3f-914c-beae6dc8cd7e" />
 
 
 
