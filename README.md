@@ -1,11 +1,8 @@
-# Art by me!! Requested by someone!!
 
-<img width="375" height="279.5" alt="Screenshot 2025-12-28 6 11 42 PM" src="https://github.com/user-attachments/assets/df05121f-9bff-4f3f-914c-beae6dc8cd7e" />
 
 # 
 
 # When ure 💙, I'm ❤, I wna 💋 ur neck & make u 💜 all ovr
-![blinkiesCafe-31](https://github.com/user-attachments/assets/8b6a4195-653a-4172-bbbb-9c033e6c2cd5)
 
 #
 
@@ -22,7 +19,7 @@
 
 
 
-![9dd9d0a2](https://github.com/user-attachments/assets/1c504738-1741-4997-940d-cae7689c2005)
+<img width="500" height="27" alt="cherryblossoms3" src="https://github.com/user-attachments/assets/7825a8ac-091e-40b8-a47e-1fbf7d4abfbc" />
 
 #
 
@@ -59,13 +56,10 @@ Gen in Gen:
 
 
 
-https://github.com/user-attachments/assets/3f0ae24b-43ea-4a37-a0cd-a99b45c89445
 
 
 
 
-
-<img width="480" height="480" alt="7f486d58" src="https://github.com/user-attachments/assets/9bf0170c-200b-4a52-b0de-6b9edd5406d4" />   ![Cookie0600-sit_floor](https://github.com/user-attachments/assets/204f6083-675c-473a-a844-28a0a1a0ca50) ![2d7dc1af](https://github.com/user-attachments/assets/6e04c0b7-2998-4c13-8b45-443080965e60)
-
+<img width="480" height="480" alt="7f486d58" src="https://github.com/user-attachments/assets/9bf0170c-200b-4a52-b0de-6b9edd5406d4" />  
 
 ![j3](https://github.com/user-attachments/assets/a5a5eda5-f485-46d2-ad22-637af7defcae)
