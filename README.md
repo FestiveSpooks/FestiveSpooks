@@ -51,6 +51,8 @@ Gen in Gen:
 
 **Gen in Gen:** *Gen (My name) in General.*
 
+I think fem! player x Taunie is better ://
+
 #
  
 
