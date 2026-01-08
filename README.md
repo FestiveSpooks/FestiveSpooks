@@ -1,20 +1,21 @@
+![costume1 (4)](https://github.com/user-attachments/assets/2bd37f1c-a4aa-40dd-89d0-831d570fa533)
 
 
 # 
 
 # When ure 💙, I'm ❤, I wna 💋 ur neck & make u 💜 all ovr
 
-#
+Title: When you fail to rizz her up so you swap genders instead. [Pokémon Legends: Z-A]
 
-![h15](https://github.com/user-attachments/assets/6fa04b75-cc6f-49c4-acd3-ca8cecffc559) <img width="99" height="56" alt="j5" src="https://github.com/user-attachments/assets/b555a898-9b7d-45fa-8067-a21da6a52335" /> 
+[HELP.webm](https://github.com/user-attachments/assets/e2b0ce32-29c9-4bb1-ae98-b88c08fcf145)
+
+
 
 ![a101](https://github.com/user-attachments/assets/d0bede44-47ce-45a8-a04c-9ca4113a8b94)
 
-![366afc6d](https://github.com/user-attachments/assets/a2b876b7-5bfe-40c0-a38d-33b777fd36a4) 
 ![c27](https://github.com/user-attachments/assets/fb46429c-8629-4cf1-8c8e-171d3d493c93)
-![blinkiesCafe-jA](https://github.com/user-attachments/assets/de981158-aeb1-4d1c-b8c3-b67cdda15092)
-![c587b2cd](https://github.com/user-attachments/assets/d58354d5-116e-4b63-97a0-5d7680272a21)
-![j1](https://github.com/user-attachments/assets/ce5de1be-b216-4cf4-bb37-52b7977c4e7b)
+
+
 
 
 
@@ -33,6 +34,7 @@ Gen in Gen:
 ![0076-demigirl](https://github.com/user-attachments/assets/9efaa8a4-bd97-493c-99a8-da14d095d01d)
 ![0160-pupgender](https://github.com/user-attachments/assets/f2553e5a-ccd8-404d-8dbf-3719f14fcfbe) 
 ![0071-bi (1)](https://github.com/user-attachments/assets/91b0307a-96d7-442b-a20d-a9aa8946f52c)
+
 
 
 
