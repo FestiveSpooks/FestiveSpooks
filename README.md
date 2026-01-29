@@ -1,14 +1,4 @@
-![costume1 (4)](https://github.com/user-attachments/assets/2bd37f1c-a4aa-40dd-89d0-831d570fa533)
-
-
-# 
-
-# When ure 💙, I'm ❤, I wna 💋 ur neck & make u 💜 all ovr
-
-Title: When you fail to rizz her up so you swap genders instead. [Pokémon Legends: Z-A]
-
-[HELP.webm](https://github.com/user-attachments/assets/e2b0ce32-29c9-4bb1-ae98-b88c08fcf145)
-
+![costume1 (10)](https://github.com/user-attachments/assets/04c6ee57-53a4-4729-96a8-ec6c5c33210a)
 
 
 ![a101](https://github.com/user-attachments/assets/d0bede44-47ce-45a8-a04c-9ca4113a8b94)
@@ -53,10 +43,9 @@ Gen in Gen:
 
 **Gen in Gen:** *Gen (My name) in General.*
 
-I think fem! player x Taunie is better ://
-
 #
  
+![costume2 (2)](https://github.com/user-attachments/assets/7890587a-0b93-4571-8adf-62c5452f0987)
 
 
 
