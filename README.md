@@ -7,6 +7,8 @@ its so stupid that people like me have to go through this everyday, literally- h
 
 ![costume1 (10)](https://github.com/user-attachments/assets/04c6ee57-53a4-4729-96a8-ec6c5c33210a)
 
+[sigh!!.webm](https://github.com/user-attachments/assets/c7737f7d-1ddb-4449-a4ef-ecba01312612)
+
 
 ![a101](https://github.com/user-attachments/assets/d0bede44-47ce-45a8-a04c-9ca4113a8b94)
 
