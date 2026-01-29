@@ -1,3 +1,5 @@
+more info: literally it was old drama going on and now ppl are bringing it back..??? ;-; I am not problematic... Maybe I was then, I am not sure but I literally am innocent... This is why I literally did another github make over atp.. and a literal plead.
+
 ![costume1 (10)](https://github.com/user-attachments/assets/04c6ee57-53a4-4729-96a8-ec6c5c33210a)
 
 
