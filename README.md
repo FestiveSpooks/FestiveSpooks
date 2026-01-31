@@ -28,6 +28,9 @@ Gen in Gen:
 ![0071-bi (1)](https://github.com/user-attachments/assets/91b0307a-96d7-442b-a20d-a9aa8946f52c)
 
 
+<img width="204" height="204" alt="pink-heart-journal-with-golden-pens-png" src="https://github.com/user-attachments/assets/0ac5778d-cd29-4977-8fec-5e5995601abb" />
+
+
 
 
 
