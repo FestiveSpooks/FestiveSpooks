@@ -47,6 +47,11 @@ Gen in Gen:
 
 **Gen in Gen:** *Gen (My name) in General.*
 
+Me n gng <3 :
+
+[Screen recording 2026-02-01 3.42.14 AM.webm](https://github.com/user-attachments/assets/b4b7397d-6588-4e0d-bdce-16c6d12c73cc)
+
+
 #
 <img width="500" height="27" alt="cherryblossoms3" src="https://github.com/user-attachments/assets/7825a8ac-091e-40b8-a47e-1fbf7d4abfbc" />
 
