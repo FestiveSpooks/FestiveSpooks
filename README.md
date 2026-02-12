@@ -1,7 +1,7 @@
 ![kindpng_557579 (1)](https://github.com/user-attachments/assets/028119e6-bad9-4a31-857b-054426c2b92b) <img width="100" height="100" alt="2VQUwwjm4v8ZT1wWkrVQmCXPMmq" src="https://github.com/user-attachments/assets/1016fa61-4134-49d0-8884-0bf8b00d2978" />
 
 
-Welcome to the literature club! Interested to know more about me?
+Welcome to the Git Hub! Interested to know more about me?
 
 I am an ordinary highschool girl, and this page is inactive 
 (Majority at times. . . that is.)
@@ -47,27 +47,18 @@ Gen in Gen:
 
 **Gen in Gen:** *Gen (My name) in General.*
 
-Me n gng <3 :
-
-[Screen recording 2026-02-01 3.42.14 AM.webm](https://github.com/user-attachments/assets/b4b7397d-6588-4e0d-bdce-16c6d12c73cc)
-
 
 #
 <img width="500" height="27" alt="cherryblossoms3" src="https://github.com/user-attachments/assets/7825a8ac-091e-40b8-a47e-1fbf7d4abfbc" />
 
 #
-<img width="316.75" height="301.75" alt="The Stupendium - Why Did I Say Okie Doki_" src="https://github.com/user-attachments/assets/adfca1bb-77cb-4d13-a72a-f6e6c6d102be" />
 
 
-
-#
-
-
-<img width="100" height="100" alt="—Pngtree—luxurious floral pink piano for_19936527" src="https://github.com/user-attachments/assets/9fbabd96-231b-432b-93da-2ef26b2f9262" />
-<img width="80" height="100" alt="bocr90gzjnc11" src="https://github.com/user-attachments/assets/332a0db2-0dfe-49d6-a6a4-1b66dca878e6" />
 
 
 #
+
+
 
 <img width="100" height="100" alt="2VQUwwjm4v8ZT1wWkrVQmCXPMmq" src="https://github.com/user-attachments/assets/1016fa61-4134-49d0-8884-0bf8b00d2978" />
 
