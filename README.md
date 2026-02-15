@@ -3,6 +3,10 @@
 
 Welcome to the Git Hub! Interested to know more about me?
 
+newer straw page!!
+
+# [WIP strawpage!!](https://irumastu.straw.page)
+
 I am an ordinary highschool girl, and this page is inactive 
 (Majority at times. . . that is.)
 
